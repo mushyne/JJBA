@@ -13,7 +13,11 @@ Au cours de leurs aventures, les protagonistes évoluent dans différents pays :
 
 ## Musique 
 
-Une des choses 
+Une des choses que j'apprécie particulièrement dans ce manga est qu'il est truffé de références musicales, ces références peuvent se trouver dans : 
+- le nom des antagonistes / personnages secondaires
+- le nom des pouvoirs des personnages (à partir de la partie 3)
+
+
 
 ## Collaborations 
 
